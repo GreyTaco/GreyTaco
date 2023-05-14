@@ -1,4 +1,4 @@
-Hi 👋 My name is Ilia Shuverov
+Hi 🙋🏼‍♂️ My name is Ilia Shuverov
 ==============================
 
 Data Analyst
